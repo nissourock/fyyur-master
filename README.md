@@ -1,8 +1,7 @@
 Fyyur
 -----
 
-### Update: Watch the video
-#### https://youtu.be/9B8bfP_BlAM
+
 
 ### Introduction
 
